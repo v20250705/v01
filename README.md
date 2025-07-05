@@ -13,6 +13,6 @@
 平台提供720P至4K画质，种类丰富，包括制服诱惑、情侣互动、熟女系列等，满足各种需求。点击即播，无需注册，平台使用HTTPS加密，保障你的隐私。
 立即访问，畅享高清日本AV免费视频！
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/v20250705/v01 ）</span>
 
 
